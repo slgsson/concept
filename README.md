@@ -6,7 +6,7 @@ This repository is for storing information about the concept for the Decentraliz
 DRAFT CONCEPT
 =============
 
-What is is about this city that nurtures alternative ecosystems to grow? What is this freedom?
+What is it about this city that nurtures alternative ecosystems to grow? What is this freedom?
 
 A city with constant growing pains, in flux, impermanent, Berlin is about creation.
 
