@@ -9,7 +9,7 @@ With creation at its very core, Berlin is a constant source of inspiration for t
 changing - a nurturing place for the process of innovative and alternative ecosystems. The
 culture room for EthBerlin seeks to reflect and present a city that always has been, and still
 is, in flux and transient, a city that thrives on its movements.
-With is constant yearning for movement, Berlin has become a city in the forefront of
+With its constant yearning for movement, Berlin has become a city in the forefront of
 alternative ecosystems, nurturing not only the new systems themselves, but also the makers
 of them. With so many alternative systems developing, the whole construction of Berlin has
 a feeling of being unrestrained, just like it’s nature and it’ parks. It aspires to the wild and the
